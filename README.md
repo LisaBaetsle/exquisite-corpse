@@ -11,3 +11,4 @@ He didn't make his 7th birthday, and was replaced by a guppy.
 She gave a name to her puppy. His name will be **Bruno**, she said!
 
 Bruno become her best friend, they were always _together_.
+Only Bruno turned out to be a girl!
